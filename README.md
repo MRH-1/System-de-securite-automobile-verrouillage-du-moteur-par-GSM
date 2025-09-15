@@ -1,0 +1,1 @@
+Le système de verrouillage de moteur basé sur la technologie GSM est un dispositif anti-vol conçu pour renforcer la sécurité des voitures et prévenir leur perte. Grâce à l’utilisation du GSM, il offre une solution efficace permettant de neutraliser différentes méthodes de vol.
